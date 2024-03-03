@@ -1,0 +1,2 @@
+
+<img src= "https://github.com/ASw1tch/M4Exercise-Data-_Meta/assets/108889662/e951aafb-bb90-487b-88fa-daa58010d5ed" width="320" height="720"> <img src= "https://github.com/ASw1tch/M4Exercise-Data-_Meta/assets/108889662/2d53f81d-d30e-439e-87a0-3a5a0a80cece" width="320" height="720"> <img src= "https://github.com/ASw1tch/M4Exercise-Data-_Meta/assets/108889662/efa8ce9d-3911-449c-bf43-726ec49483e3" width="320" height="720"> 
